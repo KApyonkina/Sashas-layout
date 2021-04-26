@@ -1,2 +1,0 @@
-# Sasha_s-layout
--
